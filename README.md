@@ -1,8 +1,7 @@
 ## Hi there 👋
 
 My name is Saurabh.<br/>
-I am a travel photographer.<br/>
-I create content for [Instagram].(https://www.instagram.com/theoutdoorsmansj?igsh=dmp4cHFobGxydHp3)
+
 
 
 ## 🌐 Socials:
